@@ -216,4 +216,4 @@ Sam & Max: Abe Lincoln must die! is available as a full free version, offering a
 Ready to embark on an unforgettable adventure? Download Sam & Max: Abe Lincoln must die! for free today and join the fun!
 
 ---
-**Last updated:** 2026-10-17 22:51:04 UTC
+**Last updated:** 2026-10-18 00:35:51 UTC
